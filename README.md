@@ -11,5 +11,5 @@ Jennifer Wong
 
 Marzuq Khan
 
-Akul Suhail Malhotr 
+Akul Suhail Malhotra
 
