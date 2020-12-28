@@ -3,9 +3,9 @@ Our objective is to look at the current marketing tactics utilized by American U
 
 Project participants:
 
-John Lodge
-Lize Peng
-Jennifer Wong
-Marzuq Khan
-Akul Suhail Malhotra
+John Lodge. 
+Lize Peng. 
+Jennifer Wong. 
+Marzuq Khan. 
+Akul Suhail Malhotra. 
 
